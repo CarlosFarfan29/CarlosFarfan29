@@ -1,5 +1,5 @@
 # 💫 About Me:
-Soy un apasionado estudiante de Ingeniería de Sistemas con una pasión innata por la programación. Mi búsqueda constante de conocimiento y mi deseo insaciable de aprender me impulsan a sobresalir ante los demás. Estoy ansioso por participar en emocionantes proyectos que desafíen mis habilidades y me permitan crecer como profesional.<br><br>Con una mentalidad proactiva y orientada a resultados, estoy siempre listo para enfrentar nuevos retos y aportar soluciones innovadoras. Mi enfoque colaborativo y mi capacidad para trabajar en equipo me permiten adaptarme rápidamente a entornos dinámicos y colaborativos.
+Soy un estudiante de Ingeniería de Sistemas con una verdadera pasión por la programación. Mi búsqueda constante de conocimiento y mi deseo insaciable de aprender me impulsan a sobresalir ante los demás. Estoy ansioso por participar en emocionantes proyectos que desafíen mis habilidades y me permitan crecer como profesional.<br><br>Con una mentalidad proactiva y orientada a resultados, estoy siempre listo para enfrentar nuevos retos y aportar soluciones innovadoras. Mi enfoque colaborativo y mi capacidad para trabajar en equipo me permiten adaptarme rápidamente a entornos dinámicos y colaborativos.
 
 
 ## 🌐 Socials:
